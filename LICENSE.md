@@ -1,4 +1,4 @@
-# 
+# instant bot de negociação Binance Futures executor é o melhor bot de negociação Binance Futures executor com grid trading e baixa frequência. Seguro, confiável e otimizado para
 
 
 
